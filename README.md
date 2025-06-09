@@ -69,7 +69,7 @@ Root → 0
 
 **👨‍🎓 Ridham Garg**
 🚀 B.Tech Computer Engineering, Thapar University, Patiala
-📧 *[ridhamgarg@example.com](mailto:ridhamgarg@example.com)*
+📧 *[ridhamgarg000@gmail.com](ridhamgarg000@gmail.com)*
 
 ---
 
